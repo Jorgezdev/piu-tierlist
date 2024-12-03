@@ -1,0 +1,1 @@
+Este es un tierlist para agendas de ejercicios o metas para agregar escalabilidad de objetivos .
